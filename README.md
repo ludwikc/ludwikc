@@ -1,6 +1,4 @@
-`ludwikc/README.md`
-
-Hi there 👋 I'm Ludwik. 
+Hi there 👋 I'm [Ludwik](https://siadlak.com).
 
 I arm the Warriors. <br>
 I guide the Seekers.
