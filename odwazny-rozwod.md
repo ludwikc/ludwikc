@@ -11,6 +11,8 @@ To są moje zapiski przechodzenia przez proces rozwodowy - ze spokojem<sup>*</su
 > [!CAUTION]
 > Polskie sądy systemowo stawiają ojców w przegranej pozycji, czego doświadczam na własnej skórze, ale liczę, że te zapiski pomogą przejść przez ten proces z najmniejszymi ranami.
 
+<sup>*</sup> - nie da się przejść przez rozwód ze spokojem. Można tylko *minimalizować straty*. 
+
 ## Rodzaje rozwodów
 
 ### Prawnicy z Instagrama
